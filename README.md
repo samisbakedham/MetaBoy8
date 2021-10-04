@@ -4,6 +4,5 @@
   
 I am talented Flutter and Blockchain Developer.
     
-- 💬 skype : [@Ks Alex](https://join.skype.com/invite/hDGklsy3gF6R);
 - 📝 Email : winterspringtiger@gmail.com, hauler@innovdevteam.com
 
