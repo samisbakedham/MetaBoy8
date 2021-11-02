@@ -4,5 +4,5 @@
   
 I am talented Flutter and Blockchain Developer.
     
-- 📝 Email : winterspringtiger@gmail.com, hauler@innovdevteam.com
+- 📝 Email : topjgm0824@gmail.com winterspringtiger@gmail.com
 
